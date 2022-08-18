@@ -1,0 +1,1 @@
+# azure-s-nav-d-k-mantasyon
